@@ -2,6 +2,7 @@
 ###### dose: 4 pax
 - Ingredientes
 - 1 bom molho de coentros
+    - (ou um molho pequeno de poejos ou uma mistura das duas ervas)
 - 4 dentes de alho
 - 1 colher de sopa bem cheia de sal grosso
 - 4 colheres de sopa de azeite
