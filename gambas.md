@@ -23,3 +23,4 @@ Substitua as gambas por tirinhas de lulas ou de chocos pequenos.
 Deixe fritar até ficarem macias.
 Este prato pode ser feito com as gambas cozidas e descascadas, mas o resultado é muito inferior, além de render menos.
 ![alt text](image-5.png)
+![image](https://github.com/pedrofranzina/receitas/assets/167815959/a470f821-7f08-45d7-ae4a-d1347f030863)
