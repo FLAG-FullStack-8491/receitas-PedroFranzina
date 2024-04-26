@@ -18,3 +18,4 @@ Num recipiente bata os ovos com um pouco de sal, pimenta e deite sobre o prepara
 Leve ao  forno até que superfície esteja dourada.
 Sirva bem quente.
 ![alt text](image-4.png)
+![image](https://github.com/pedrofranzina/receitas/assets/167815959/306928e1-8ced-4149-bef3-2b5072c70e54)
