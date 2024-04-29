@@ -23,3 +23,5 @@ Este prato pode ser feito com as gambas cozidas e descascadas, mas o resultado Ã
 ![image](https://github.com/pedrofranzina/receitas/assets/167815959/a470f821-7f08-45d7-ae4a-d1347f030863)
 
 CONFLITO
+
+outra coisa
