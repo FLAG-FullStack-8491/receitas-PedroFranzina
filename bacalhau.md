@@ -10,7 +10,7 @@
 - sal q.b.
 - pimenta q.b.
 #### Confecção 
-Coza o bacalhau cerca de 1 minuto num tacho com bastante água.
+Coza o bacalhau cerca de 2 minutos num tacho com bastante água.
 Retire o bacalhau e desfaço-o, na mesma água coza as batatas, descascadas, até ficarem macias, corte-as em rodelas.
 Em seguida, numa frigideira aqueça o azeite e nele refogue as cebolas e os alhos.
 Num tabuleiro de preferência de barro, coloque uma camada feita com metade do refogado da cebola, disponha por cima outra camada com metade das batatas e sobre esta distribua metade da porção do bacalhau, tempere de sal e pimenta e continue a sobrepor camadas até acabar os ingredientes.

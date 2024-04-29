@@ -12,8 +12,6 @@
 Pisam-se num almofariz, reduzindo-os a papa, os coentros (ou os poejos) com os dentes de alho, a que se retirou o grelo, e o sal grosso.
 Deita-se esta papa na terrina ou numa tigela de meia cozinha, que neste caso fará ofícios de terrina.
 Rega-se com o azeite e escalda-se com a água a ferver, onde previamente se escalfaram os ovos (de onde se retiraram).
-Mexe-se a açorda com uma fatia de pão grande, com que se prova a sopa.
-A esta sopa dá-se o nome de sopa «azeiteira» ou «sopa mestra».
 Introduz-se então no caldo o pão, que foi ou não cortado em fatias ou em cubos com uma faca, ou partido à mão, conforme o gosto.
 Depois, tapa-se ou não a açorda, pois uns gostam dela mole e outros apreciam as suas sopas duras.
 Os ovos são colocados no prato ou sobre as sopas na terrina, também conforme o gosto.

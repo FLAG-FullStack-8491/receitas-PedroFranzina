@@ -12,7 +12,7 @@ Corte as barbas e os olhos às gambas.
 Abra a carapaça com uma tesoura, pela a parte das patas e descasque-as, deixando as cabeças agarradas.
 Corte os dentes de alho em rodelas, abras as malaguetas e retire-lhes as sementes.
 Divida o azeite por 4 caçarolinhas, deixe aquecer bem e deite, de cada uma delas, 1/4 da porção dos alhos, da malagueta e uma quarta parte das gambas cruas.
-Deixe fritar 7 a 8 minutos.
+Deixe fritar 9 a 10 minutos.
 Junte o molho inglês, o vinagre, sal e pimenta.
 Sirva bem quente.
 
